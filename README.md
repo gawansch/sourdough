@@ -26,6 +26,12 @@ Vent 30 minutter og rør rundt igen. Gentag evt. et par gange.
 
 Lad dejen stå på køkkenbordet et par timer, hvorefter den sættes i køleskabet natten over. 
 
-Om morgenen er det lettest at forme dejen til 12 boller. Opdaterer med et link der viser hvordan dejen kan formes til brød.
+Om morgenen er det lettest at forme dejen til 12 boller. 
+
+Ellers kan den formes sådan her, 15 minutter inden den kommer i ovnen:
+
+https://www.instagram.com/reel/C9XYi-uNmGt/?igsh=MWk3eWZiamozdWFwbQ==
+
+
   
 
