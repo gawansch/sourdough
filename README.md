@@ -30,7 +30,7 @@ Om morgenen er det lettest at forme dejen til 12 boller.
 
 Ellers kan den formes sådan her, 15 minutter inden den kommer i ovnen:
 
-https://www.instagram.com/reel/C9XYi-uNmGt/?igsh=MWk3eWZiamozdWFwbQ==
+[Simpel Surdej](https://www.instagram.com/reel/C9XYi-uNmGt/?igsh=MWk3eWZiamozdWFwbQ==)
 
 
   
