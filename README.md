@@ -43,6 +43,7 @@ Ovnen forvarmes til 250 grader. Når dejen er sat ind sænkes temperaturen til 2
 * 300g surdej
 * 1450g hvedemel
 * 350g 5-kornsblanding (f.eks. rema 100 økologisk)
+* 1160g vand
 
 Rør bland godt, og lad stå i en halv time. Dette er en form for autolyse, da vi ikke har tilsat saltet endnu. 
 
