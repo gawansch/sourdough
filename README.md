@@ -26,9 +26,11 @@ Vent 30 minutter og rør rundt igen. Gentag evt. et par gange.
 
 Lad dejen stå på køkkenbordet et par timer, hvorefter den sættes i køleskabet natten over. 
 
-Om morgenen er det lettest at forme dejen til 12 boller. 
+Om morgenen er det lettest at forme dejen til 12 boller. Se video længere nede for at se hvordan man bør forme brødet. Selvom det virker fjollet at gøre så meget ud af den del, så har det altså en effekt. Alt dette skal ske mindst 15 minutter og max 45 minutter før brødet sættes i ovnen.
 
-Ellers kan den formes sådan her, 15 minutter inden den kommer i ovnen:
+Ovnen forvarmes til 250 grader. Når dejen er sat ind sænkes temperaturen til 230 grader. Helst på damp program, så fugtigheden holdes i ovnen. Efter 10 minutter kan man vælge at sænke temperaturen yderligere til f.eks. 200 grader. Det giver en blødere og lysere skorpe.
+
+### Formning af brød:
 
 [Simpel Surdej](https://www.instagram.com/reel/C9XYi-uNmGt/?igsh=MWk3eWZiamozdWFwbQ==)
 
